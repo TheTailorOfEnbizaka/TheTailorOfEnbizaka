@@ -1,2 +1,2 @@
 ## 
-![Image alt](https://github.com/TheTailorOfEnbizaka/TheTailorOfEnbizaka/blob/f6819dece03a6080762431e680e7d6ff9f169fd8/screen-20260903-013252~2.mp4)
+![Image alt](https://github.com/TheTailorOfEnbizaka/TheTailorOfEnbizaka/blob/c35212c9c7c06634e660e75d1afc8832efdb37ba/0365d38134285a8e4041c8a0b5c1e3ba.png)
